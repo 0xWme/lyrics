@@ -2,10 +2,15 @@
 
 [Intro: Lil Fabi]
 «Ich heiß Fabian
+
 Ihr könnt mich nennen wie ihr wollt, Fabi oder so
+
 Unnnnd ja ich bin… 13 Jahre alt
+
 Ich werd auf jeden Fall mal ne Community aufbauen,
+
 ich hoff die wird mal groß
+
 Ihr könnt da jederzeit beitreten auf facebook, alles ist verlinkt in meinem Titelbild»
 
 

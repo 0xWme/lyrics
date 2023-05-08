@@ -1,6 +1,7 @@
 # 0xW – Mystery_Who? (feat. Mrs_Yukii)
 
 [Intro: Lil Fabi]
+
 «Ich heiß Fabian
 
 Ihr könnt mich nennen wie ihr wollt, Fabi oder so
@@ -13,8 +14,10 @@ ich hoff die wird mal groß
 
 Ihr könnt da jederzeit beitreten auf facebook, alles ist verlinkt in meinem Titelbild»
 
+----------
 
 [Bridge: 0xW & Mrs_Yukii]
+
 Yuki, Mann ich weiß, du bist gut erzogen, aber sag es
 
 Fabi ist ein Hurensohn!
@@ -25,6 +28,7 @@ Aber sag es
 
 Fabi ist ein Hurensohn!
 
+----------
 
 [Hook: 0xW]
 
@@ -44,7 +48,7 @@ Du Hast den Chat gefickt und darum fickt der Chat zurück,
 
 Du Hast den Chat gefickt und darum fickt der Chat zurück
 
-
+----------
 
 [Strophe 1: 0xW]
 
@@ -80,27 +84,11 @@ Warum findst du auf der Welt keine Liebe?
 
 Was für dich zählt, ist die Elfbarmaschine
 
-
+----------
 
 [Hook: 0xW]
 
-Mystery ist fake, er ist Lüge, er hat ADHS
-
-Für das Tierheim in Funchal gab es niemals ein Scheck
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück,
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück,
-
-Mystery ist fake, er ist Lüge, er hat ADHS
-
-Für das Tierheim in Funchal gab es niemals ein Scheck
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück,
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück
-
-
+----------
 
 [Strophe 2: 0xW]
 
@@ -130,41 +118,15 @@ Ja, ich bin ein neureicher, gottverdammter Wichser
 
 Und Hater sind geblendet, denn die Rolex ist am glitzern
 
-
+----------
 
 [Hook: 0xW]
 
-Mystery ist fake, er ist Lüge, er hat ADHS
-
-Für das Tierheim in Funchal gab es niemals ein Scheck
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück,
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück,
-
-Mystery ist fake, er ist Lüge, er hat ADHS
-
-Für das Tierheim in Funchal gab es niemals ein Scheck
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück,
-
-Du Hast den Chat gefickt und darum fickt der Chat zurück
-
-
+----------
 
 [Bridge: 0xW & Mrs_Yukii]
 
-Yuki, Mann ich weiß, du bist gut erzogen, aber sag es
-
-Fabi ist ein Hurensohn!
-
-Yuki, Mann ich weiß, du bist 'ne Lady und bist gut erzogen
-
-Aber sag es 
-
-Fabi ist ein Hurensohn!
-
-
+----------
 
 [Outro: Geleakte Sprachnachricht]
 
